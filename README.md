@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kusniro921
-- 👀 I’m interested in ...
+- 👀 I’m icvxnterested in ...dasd
 - 🌱 I’m currently learning ...с
 - 💞️ I’m looking to collab452orate on .asdcxz..
 - 📫 How to reach me ...
