@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kusniro921
 - 👀 I’m dfgdf in ...dasd
 - 🌱 I’m currently learning ...с
-- 💞️ I’m looking to collgdfab45sd2orate on .asdcxz..
+- 💞️ I’m looking tads collgsdadfab45sd2orate on .asdcxz..
 - 📫 How to reach me ...
 asczxadczxcgdgfdfggfd
 <!---asdgfd
