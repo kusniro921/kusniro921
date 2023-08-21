@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @kusniro921
-- 👀 I’m dfgdf in ...dasd
-- 🌱 I’m currently learning ...с
+bcxin ...dasd
+- 🌱 I’m currentldsay learning ...с
 - 💞️ I’m looking tads collgsdadfab45sd2orate on .asdcxz..івавчяс
 - 📫 How to reach meячс ...sdfxcvcsdfshte
 asczxadczxcgdgfdfggfd
