@@ -1,6 +1,6 @@
 bcxin ...dasd
-- 🌱 I’m currentldsay learning ...с
-- 💞️ I’m looking tads collgsdadfab45sd2orate on .asdcxz..івавчяс
+- 🌱 I’m currentldsay learninvbnmg ...с
+- 💞️ I’m looking tads collgsdadfab45sd2orate on .asvnmcxz..івавчяс
 - 📫 How to reach meячс ...sdfxcvcsdfshte
 asczxadczxcgdgfdfggfd
 <!---asdgfdcv
