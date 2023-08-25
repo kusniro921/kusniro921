@@ -1,7 +1,7 @@
 мсчbcxin ...dasd
 - 🌱 I’m currentldsay learninvbnmg ...с
-- 💞️ I’m looking tads collgsdadfab45sd2orate on .asvnmcxz..івавчясfd
-- 📫 How to reach meячс ...sdfxcvcsdfshte
+- 💞️ I’m looking tads collgsdacxvdfab45sd2orate on .asvnmcxz..івавчясfd
+- 📫 How to reach meячс ...sdsdffxcvcsdfshte
 asczxadczxcgdgfdfggfd
 <!---asdgfdcv
 kusniro921/kusniro921 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
