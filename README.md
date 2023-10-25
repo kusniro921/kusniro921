@@ -1,4 +1,4 @@
-мсчbcxin ...dasdasd
+мсчbcxin ...dasnnbdasd
 - 🌱 I’m currentldsay learninvbnmівафіваg ...с
 - 💞️ I’m looking tads hklj,asdcbcollgsdacxvdfab45sd2orateмячsdasdсмячсмonhgj .asvnmcxz..івавчясfdasdds
 - 📫 How to reach meячс ...sdsdffxcvcsdfsвіамсчимhtecxvxcvxcv
