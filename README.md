@@ -1,5 +1,5 @@
 мсчbcxin ...dasnnbdasdasdassadscxvcxv
-- 🌱 I’m currentldsay learninvbnmівафіваg ...сds
+- 🌱 I’m currentldsay learninvbjhknmівафіваg ...сds
 - 💞️ I’m looking tads uvlkghklj,asdcbcollgsdacxvdfab45sd2orateмяhgjvчsdasdсмячсмonhgj .asvnmcxz..івавчясfddsadsacasddschvgjb
 - 📫 How to reach meячс asdsaфівяч...sdsdffxcvcsdfsвіамсчимhtecxvxcvxcvxzc
 asczxadczxcgdgfdfggfdfsdasdsavfvc
