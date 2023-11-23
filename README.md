@@ -1,6 +1,6 @@
 мсчbcxin ...dasnnbdasdasdassadscxvcxv
 - 🌱 I’m currentldsay learninvbjhknmівафіваg ...сds
-- 💞️ I’m looking tads xcxcxsdduvlkghklj,asdcbcollgsdacxvdfhjjab45sd2orateмяhgjvчsdasdсмячсмonhgjорл sdsd.asvnmcxz..івавчясfddлпроadsaygkhcasddschvghjkgjb
+- 💞️ I’m looking tads xcxcxsdduvlkghklj,asdcbcollgsdacxvdfhjjab45sd2orateмяhgjvчsdasdсмячсмonhgjорл sdsd.asvnmcxz..івавчясfddлпроadsaasdsadygkhcasddschvghjkgjb
 - 📫 How to reach meячс asdsaфівяч...sdsdffxcvcsdfsвіамсчимhtecxvxcvxcvxzc
 asczxadczxcgdgfdfggfdfsdasdsavfvc
 <!---asdgfdcvasdasxv
